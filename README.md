@@ -4,6 +4,8 @@
 
 [Download](https://d-jangkhtv.itch.io/erauqs-hsad)
 
+[![Development Note p.5](https://img.youtube.com/vi/Xu0KZsndZ-I/0.jpg)](https://www.youtube.com/watch?v=Xu0KZsndZ-I)
+
 # **Links(링크)**
 
 * [JkhTV YouTube(장경혁tv)](https://www.youtube.com/channel/UC0lR1aYGgOhFioC3IsazUtw)
